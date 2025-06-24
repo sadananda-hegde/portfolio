@@ -1,1 +1,1 @@
-wwww.sadanandahegde.tech
+www.sadanandahegde.tech
